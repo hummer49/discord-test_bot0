@@ -1,0 +1,1 @@
+So, basically, this will be a pretty usefull discord bot one day. See you then.
